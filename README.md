@@ -1,0 +1,2 @@
+# BlackMyth-Wukong
+game cheat
